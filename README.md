@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Esorak
+- 👀 I’m interested in Cybersecurity
+- 🌱 I’m currently learning How to add custom boss script to private wow server
+- 💞️ I’m looking to collaborate on Custom wow server/gmod serv
+- 📫 How to reach me ...
+- ⚡ Fun fact: none, im not fun
+- 
